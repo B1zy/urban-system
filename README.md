@@ -9,4 +9,5 @@ The innkeeper wiped his hands on his canvas apron and filled a chipped earthenwa
 The stranger was not old but his hair was almost entirely white. Beneath his coat he wore a worn leather jerkin laced up at the neck and shoulders.
 As he took off his coat those around him noticed that he carried a sword—not something unusual in itself, nearly every man in Wyzim carried a weapon—but no one carried a sword strapped to his back as if it were a bow or a quiver.*
 [link](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-![Alt Text](https://i.imgur.com/F98m4OB.png)
+![BIld1](https://i.imgur.com/F98m4OB.png)
+[Bild2](https://i.imgur.com/UGWrj0c.png)
