@@ -11,6 +11,9 @@ As he took off his coat those around him noticed that he carried a sword—not s
 [link](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 ![BIld1](https://i.imgur.com/F98m4OB.png)
 [Bild2](https://i.imgur.com/UGWrj0c.png)
-~~gut~~
+
+Lorem ipsum ~~dolor~~ sit amet, consectetur adipiscing
+
 Lorem ipsum **dolor** sit amet, consectetur adipiscing
+
 Lorem ipsum `dolor` sit amet, consectetur adipiscing
