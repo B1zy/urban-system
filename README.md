@@ -1,4 +1,11 @@
 # urban-system 101
-**Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in** *reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.*
+**Later, it was said the man came from the north, from Ropers Gate. He came on foot, leading his laden horse by the bridle. It was late afternoon and the ropers’, saddlers’ and tanners’ stalls were already closed, the street empty. It was hot but the man had a black coat thrown over his shoulders. He drew attention to himself.
+He stopped in front of the Old Narakort Inn, stood there for a moment, listened to the hubbub of voices. As usual, at this hour, it was full of people.
+The stranger did not enter the Old Narakort. He pulled his horse farther down the street to another tavern, a smaller one, called The Fox. Not enjoying the best of reputations, it was almost empty.** *The innkeeper raised his head above a barrel of pickled cucumbers and measured the man with his gaze. The outsider, still in his coat, stood stiffly in front of the counter, motionless and silent.
+"What will it be?"
+"Beer," said the stranger. His voice was unpleasant.
+The innkeeper wiped his hands on his canvas apron and filled a chipped earthenware tankard.
+The stranger was not old but his hair was almost entirely white. Beneath his coat he wore a worn leather jerkin laced up at the neck and shoulders.
+As he took off his coat those around him noticed that he carried a sword—not something unusual in itself, nearly every man in Wyzim carried a weapon—but no one carried a sword strapped to his back as if it were a bow or a quiver.*
 [link](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-![Alt Text](https://www.bing.com/images/search?view=detailV2&insightstoken=bcid_qEmTuUltCoQEDfvxDe9AqzPdv2yI.....wQ*ccid_SZO5SW0K&form=ANCMS1&iss=SBIUPLOADGET&selectedindex=0&id=-387871356&ccid=SZO5SW0K&exph=395&expw=600&vt=2&sim=11)
+![Alt Text](https://i.imgur.com/F98m4OB.png)
